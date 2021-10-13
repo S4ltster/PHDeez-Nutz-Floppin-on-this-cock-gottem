@@ -24,6 +24,10 @@ Rubondese
 
 Miphat
 Rydon
+Felon
+Satisfaction
+Guidon
+Tension
 Sawcon/Saw-Con
 Sloberon
 Tipodiss
