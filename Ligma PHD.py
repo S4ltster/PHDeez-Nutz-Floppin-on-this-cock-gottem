@@ -25,9 +25,7 @@ Rubondese
 Miphat
 Rydon
 Felon
-Satisfaction
 Guidon
-Tension
 Sawcon/Saw-Con
 Sloberon
 Saturn (Sat on this dick, Sat un this dick)
