@@ -4,6 +4,7 @@ Ligma
 Sugma/Sucma
 Bofa
 
+Dieze
 Eatma
 Fugma
 Kisma
